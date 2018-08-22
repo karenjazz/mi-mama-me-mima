@@ -1,2 +1,2 @@
 # mi-mama-me-mima
-intentar hacer mi pagina web :'v
+intentando hacer mi pagina web :'v
